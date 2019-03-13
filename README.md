@@ -66,7 +66,3 @@ And a video of a 3D - model I made.
 
 THANK YOU !!
 HOPE YOU LIKE IT!
-
-If you have any Queries you can mail me @ sakshi17092@iiitd.ac.n
-
-
